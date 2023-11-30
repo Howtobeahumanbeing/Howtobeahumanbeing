@@ -25,9 +25,7 @@ i love Sir chloe did you know
 ![](https://64.media.tumblr.com/9ad3c29035d82b5ddeaf6b8f86b04085/tumblr_pyaxoxTwJ01xbgu08o1_100.png)![](https://64.media.tumblr.com/2ffedaf319ad75afeb80a6a3ca4e935b/tumblr_pyawq1FR0c1xbgu08o2_100.png)![](https://64.media.tumblr.com/35d53bb664651a336ddd6d9ced251622/tumblr_pyawq1FR0c1xbgu08o1_100.png)![](https://64.media.tumblr.com/2d29e418d7a3d6d8da4d97e9f242e4b1/tumblr_pyawq1FR0c1xbgu08o3_100.png)![](https://64.media.tumblr.com/bf631d4d63745da865766390707633cb/7dcb03f26b340ea1-55/s100x200/93496c7df1307eb15b3beb6c400c7cfb681ff469.gifv)![](https://64.media.tumblr.com/a3063e8b2c7caae8c73360637376f9f3/227630b723dc1c1b-e9/s100x200/40deb4dbd18456906fba77921fdfd51dffd6e8c3.gifv)
 
 
-
-
-![](https://media.discordapp.net/attachments/1029646164800315412/1178853751415648397/Picsart_23-11-24_03-31-44-354.jpg?ex=6577a81c&is=6565331c&hm=65ebf958dbd6af1e87e16e666dd38d5b7d01a9a13d32a302d9505f499236798f&=&format=webp&width=443&height=411)
+![](https://media.discordapp.net/attachments/1029646164800315412/1179588480897126510/Picsart_23-11-28_04-42-59-397.jpg?ex=657a5461&is=6567df61&hm=a972e443764fe9683ac884edde0e89ca7454820566f9e9b0fe26afdf3dd0a043&=&format=webp&width=342&height=411)
 
 ![](https://64.media.tumblr.com/ca4e8ec838b58786becf96051881f6b1/tumblr_pvhupydOFK1xbgu08o5_100.png)![](https://64.media.tumblr.com/539efed2de8b09b7ea1540618ba6af61/tumblr_pv7eeegqoA1xbgu08o1_100.png)![](https://64.media.tumblr.com/2edab0a1633ada3ea19aa15ef0fc2b3a/tumblr_pvhupydOFK1xbgu08o4_100.png)![](https://64.media.tumblr.com/ccbacee108bbd3fca2ec273750b3efb0/tumblr_pumjicoZ5k1xbgu08o2_100.png)![](https://y2k.neocities.org/stamps/tumblr_inline_pf6motYLE21tjl8rj_500.png)![](https://64.media.tumblr.com/931c59561e4dcbbcd3204caab4386dc5/tumblr_pu5rfrU72e1xbgu08o2_r1_100.png)![](https://64.media.tumblr.com/5bee2be50ca414468c9de7aabf8be9cd/tumblr_pummc7S8Xy1xbgu08o1_100.png)![](https://64.media.tumblr.com/aedd55ad66b19e79db3ad40c9f95a52e/tumblr_pufznlWpJy1xbgu08o1_100.png)
 
