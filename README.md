@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/abea53d3f7c528d48183f7a242f2fc5d/648b961029d7dfcf-d5/s400x600/272cbf18f6fce01581a96680d509768137e40b97.pnj)
 
 ![](https://media.discordapp.net/attachments/1061880649180532776/1118062607400697906/dcgcqyc-5747397d-06f5-4830-8bc3-76ef843c7c3a.gif) 
-i love Sir chloe did you know
+i love Sir chloe did you know,
 im addicted to Doja Cat too, but lets not talk about that
 
 ![](https://media.discordapp.net/attachments/1064346829170409502/1182151479713341481/ezgif.com-resize.gif?ex=6583a75c&is=6571325c&hm=e789618e5a460f98d27578a3ae1aeac3f59b1e285bfdfc091c2872bb062ab83e&=)
