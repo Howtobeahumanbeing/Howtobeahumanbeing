@@ -22,7 +22,7 @@ im addicted to Doja Cat too, but lets not talk about that
 ![](https://64.media.tumblr.com/ccbacee108bbd3fca2ec273750b3efb0/tumblr_pumjicoZ5k1xbgu08o2_100.png)![](https://64.media.tumblr.com/7ca7546352ea5d2e2b9a2fe819533f9c/tumblr_pvn9ryYgNP1xbgu08o4_100.png)![](https://media.discordapp.net/attachments/1029646164800315412/1180771509694906368/image.png?ex=657ea229&is=656c2d29&hm=76fbff3bc1db997b496fd7a4d3e38d05f0b754763980377a0f1644cec30e5918&=&format=webp&quality=lossless)
 
 
-![](https://media.discordapp.net/attachments/1029646164800315412/1178853751415648397/Picsart_23-11-24_03-31-44-354.jpg?ex=6577a81c&is=6565331c&hm=65ebf958dbd6af1e87e16e666dd38d5b7d01a9a13d32a302d9505f499236798f&=&format=webp&width=443&height=411)
+![](https://cdn.discordapp.com/attachments/1029646164800315412/1183900814071320586/Picsart_23-11-28_04-42-59-397.jpg?ex=658a048d&is=65778f8d&hm=8fcad018f026ed08a60d53e333e23e53a53f17ea85cf8d0bee01fe1b2a53e761&)
 
 ![](https://media.discordapp.net/attachments/1029646164800315412/1180772597722533979/image.png?ex=657ea32c&is=656c2e2c&hm=8770185d5cb2ea668ba0498c7a02f5232d2045ed94ab5f58c83d371f480d030b&=&format=webp&quality=lossless)![](https://64.media.tumblr.com/7a9d9d65c3aa4f345aff7b10822ee999/tumblr_purp60aSHH1xbgu08o2_100.png)![](https://64.media.tumblr.com/76dcd8efc3f6e92f5f75179f992ec146/tumblr_purp60aSHH1xbgu08o3_100.png)![](https://64.media.tumblr.com/1c7393c2889ce026fba7310374e27a05/tumblr_py0m7sMJlb1xbgu08o3_100.gifv)
 
