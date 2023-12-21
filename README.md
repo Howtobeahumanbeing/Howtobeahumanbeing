@@ -4,7 +4,7 @@
 i love Sir chloe did you know,
 im addicted to Doja Cat too, but lets not talk about that
 
-![](https://media.discordapp.net/attachments/1064346829170409502/1182151479713341481/ezgif.com-resize.gif?ex=6583a75c&is=6571325c&hm=e789618e5a460f98d27578a3ae1aeac3f59b1e285bfdfc091c2872bb062ab83e&=)
+![](https://media.discordapp.net/attachments/1029646164800315412/1187200539256180826/ezgif.com-resize_3.gif?ex=659605a9&is=658390a9&hm=830740158983bb6f4f7377832b9bef4185226d5742b09071c94d1c244b1fb859&=)![](https://media.discordapp.net/attachments/1029646164800315412/1187201414880038953/ezgif.com-resize_6.gif?ex=6596067a&is=6583917a&hm=24ff0b24bb47893b85390f936e05017091d6318c807af510631a8aa38a464e24&=)![](https://media.discordapp.net/attachments/1029646164800315412/1187200242936971305/ezgif.com-resize.gif?ex=65960563&is=65839063&hm=72de3303983fae81091e8d1fd48cefa9348ac3f410b7c88965d1ea82e4c3688f&=)
 
 - if i leave randomly i probably got socially drained or i fell asleep
 
