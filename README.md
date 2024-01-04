@@ -10,7 +10,7 @@ im addicted to Doja Cat too, but lets not talk about that
 
 - i usually avoid people who also are into enstars, but if you're cool and you really want to talk to me go for it
 
-- on safe im always with my friendgroup (avoid int if any of us have dniuf/c/p) and usually on 18+ im with my [bsf](https://rentry.org/mybitchisbad) but sometimes i come by myself (very rare)
+- on safe im always with my friendgroup (avoid int if any of us have dniuf/c/p) and usually on 18+ im with my [bsf](https://www.patreon.com/Vampiireloverr/about) but sometimes i come by myself (very rare)
 
 - i have constant mood swings, but i do try not to show
 
