@@ -1,8 +1,7 @@
 ![](https://64.media.tumblr.com/abea53d3f7c528d48183f7a242f2fc5d/648b961029d7dfcf-d5/s400x600/272cbf18f6fce01581a96680d509768137e40b97.pnj)
 
 ![](https://media.discordapp.net/attachments/1061880649180532776/1118062607400697906/dcgcqyc-5747397d-06f5-4830-8bc3-76ef843c7c3a.gif) 
-i love Sir chloe did you know,
-im addicted to Doja Cat too, but lets not talk about that
+i love Sir chloe did you know, i LOVE r&b and female rappers as SZA, Megan Thee Stallion and... Doja Cat... obviously not supporting the latter
 
 ![](https://media.discordapp.net/attachments/1029646164800315412/1187200539256180826/ezgif.com-resize_3.gif?ex=659605a9&is=658390a9&hm=830740158983bb6f4f7377832b9bef4185226d5742b09071c94d1c244b1fb859&=)![](https://media.discordapp.net/attachments/1029646164800315412/1187201414880038953/ezgif.com-resize_6.gif?ex=6596067a&is=6583917a&hm=24ff0b24bb47893b85390f936e05017091d6318c807af510631a8aa38a464e24&=)![](https://media.discordapp.net/attachments/1029646164800315412/1187200242936971305/ezgif.com-resize.gif?ex=65960563&is=65839063&hm=72de3303983fae81091e8d1fd48cefa9348ac3f410b7c88965d1ea82e4c3688f&=)
 
