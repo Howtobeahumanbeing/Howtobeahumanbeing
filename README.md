@@ -2,11 +2,9 @@
 
 - if i leave randomly i probably got socially drained or i fell asleep
 
-- on safe im always with my friendgroup (avoid int if any of us have dniuf/c) or [love](https://sntry.cc/coldrain) and usually on 18+ im with my [bsf](https://www.patreon.com/Vampiireloverr/about) but sometimes i come by myself (very rare)
+- im usually at enstars area with my brother, ari and/or my daughter, but sometimes im on 18+ next to spawn or with my [bsf](https://www.patreon.com/Vampiireloverr/about) or [love](https://sntry.cc/hervictim)
 
-- i have constant mood swings, but i do try not to show
-
-- i get manic sometimes, so i can get like unbearable you can tell me if im annoying, since things dont really affect me when im like that
+- i get manic sometimes, so i can get like unbearable, you can tell me if im annoying since things dont really affect me when im like that
 
 - do not interact if under 15 please (already friends excluded)
   
