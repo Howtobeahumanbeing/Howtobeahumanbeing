@@ -6,6 +6,8 @@
 
 - i have constant mood swings, but i do try not to show
 
+- i get manic sometimes, so i can get like unbearable you can tell me if im annoying, since things dont really affect me when im like that
+
 - do not interact if under 15 please (already friends excluded)
   
 
