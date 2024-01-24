@@ -2,6 +2,8 @@
 
 - if i leave randomly i probably got socially drained or i fell asleep
 
+- i make kys/kms jokes, say slurs i can reclaim, racist jokes (of my own race) and a lot of sexual jokes i avoid it towards minors obv and also tell me if youre unconfortable about any of that
+
 - if im on safe im usually at enstars area with my brother, ari and/or my daughter or jjk area with my partner, but sometimes im on 18+ next to spawn or with my [bsf](https://www.patreon.com/Vampiireloverr/about) or [love](https://sntry.cc/hervictim)
 
 - i get manic sometimes, so i can get like unbearable, you can tell me if im annoying since things dont really affect me when im like that
