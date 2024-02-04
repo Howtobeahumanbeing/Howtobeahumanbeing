@@ -5,7 +5,7 @@
 
 <p align="center">  if i leave randomly i probably got socially drained or i fell asleep</p>
 
-<p align="center">  i make kys/kms jokes, say slurs i can reclaim, racist jokes (of my own race) and a lot of sexual jokes i avoid it towards minors obv and also tell me if youre uncomfortable about any of that</p>
+<p align="center">  i make kys/kms jokes, say slurs i can reclaim, racist jokes (of my own race) and a lot of sexual jokes i avoid it towards like people under 16 obv and also tell me if youre uncomfortable about any of that</p>
 
 <p align="center">  if im on safe im usually at enstars area with my brother, ari and/or my daughter or at jjk area with my husband, but sometimes im on 18+ next to spawn or with my bsf or love</p>
 
