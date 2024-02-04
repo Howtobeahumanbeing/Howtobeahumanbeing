@@ -9,7 +9,7 @@
 
 <p align="center">  if im on safe im usually at enstars area with my brother, ari and/or my daughter or at jjk area with my husband, but sometimes im on 18+ next to spawn or with my bsf or love</p>
 
-<p align="center">  i get manic sometimes, so i can get like unbearable, you can tell me if im annoying since things dont really affect me when im like that
+<p align="center">  i get manic sometimes, so i can get like unbearable, you can tell me if im annoying since things dont really affect me when im like that :3
 
 <p align="center">  do not interact if under 15 please (already friends excluded)
   
