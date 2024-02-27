@@ -11,7 +11,6 @@
 
 <p align="center">  i get manic sometimes, so i can get like unbearable, you can tell me if im annoying since things dont really affect me when im like that :3
 
-<p align="center">  do not interact if under 15 please (already friends excluded)
   
 <p align="center"> 
   <img width="200" src="https://media.discordapp.net/attachments/1061880649180532776/1187133425195434024/760dd23b.png?ex=65cd2628&is=65bab128&hm=0f1402d5578b6b94ecd54b6aee3b2665bfa096749d7d3ebfb0d5ea31cad802f9&=&format=webp&quality=lossless"</p>
