@@ -1,7 +1,7 @@
 <p align="center"> 
   <img width="500" src="https://file.garden/Zd4zBrmXyXjgTATs/Untitled95_20240309173238.png">
   </p>
-  drawing made by best friend :3 hernandez on instagram
+  drawing made by my best friend i loveee him :3 hernandez on instagram
   
 ♡
 
