@@ -1,4 +1,4 @@
-![](https://file.garden/Zd4zBrmXyXjgTATs/juuhu%5D.png)
+![](https://file.garden/Zd4zBrmXyXjgTATs/crinyg.png)
 
 [![](https://file.garden/Zd4zBrmXyXjgTATs/Picsart_24-04-16_16-29-20-481%20(1)%20(1).png)](https://github.com/weredogs)
 ![](https://file.garden/Zd4zBrmXyXjgTATs/Billy_Wise_Chibi_Head.webp)
