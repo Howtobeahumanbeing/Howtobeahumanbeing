@@ -5,7 +5,7 @@
 [![](https://file.garden/Zd4zBrmXyXjgTATs/Picsart_24-04-16_16-44-59-975%20(1).webp)](https://rentry.org/im-barely-legal)
 
 [![](https://file.garden/Zd4zBrmXyXjgTATs/generatedtext%20(2).png)](https://astronauter.123guestbook.com/)
-![](https://file.garden/Zd4zBrmXyXjgTATs/Arme_Enchant.webp)
+![](https://file.garden/Zd4zBrmXyXjgTATs/Marion_Blythe_Substance_Logo.webp)
 [![](https://file.garden/Zd4zBrmXyXjgTATs/generatedtext%20(1)%20(1).png)](https://pronouns.cc/@yumeoarakawa)
 
 
