@@ -5,9 +5,7 @@
 ![](https://files.catbox.moe/fdbng2.png)
 [![](https://files.catbox.moe/uol8ok.webp)](https://crgn.cc/shadowdog)
 
-[![](https://files.catbox.moe/b53e7k.png)](https://retrospring.net/@Eliostro)
-![](https://file.garden/Zd4zBrmXyXjgTATs/Marion_Blythe_Substance_Logo.webp)
-[![](https://file.garden/Zd4zBrmXyXjgTATs/generatedtext%20(1)%20(1).png)](https://pronouns.cc/@yumeoarakawa)
+[![](https://files.catbox.moe/opzivy.png)](https://retrospring.net/@Eliostro) ![](https://file.garden/Zd4zBrmXyXjgTATs/Marion_Blythe_Substance_Logo.webp)  [![](https://file.garden/Zd4zBrmXyXjgTATs/generatedtext%20(1)%20(1).png)](https://pronouns.cc/@yumeoarakawa)
 
 
  [![](https://file.garden/Zd4zBrmXyXjgTATs/fdafa.png)](https://1-29-22.carrd.co/)
