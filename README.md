@@ -9,7 +9,7 @@
 
  -  my friends energize me so much so you will see me the most energetic next to them
 
- -  i not so often, say slurs i can reclaim, like the n-word being an afrolatino person, say flirty jokes if youre around my age and i see youre comfortable with it
+ -  i not so often, say slurs i can reclaim, like the n-word being an afrolatino person, say flirty and sexual jokes if youre around my age and i see youre comfortable with it
 
  -  i always sit with my friends, if you see me sitting me by myself, im probably upset but i will likely respond if you talk to me
    
