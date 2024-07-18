@@ -10,7 +10,7 @@
 
 
  <p align="center">     
-   i usuall interact with anyone but i will avoid interacting as much with people younger than 15 that arent already friends with me
+   i usually interact with anyone but i will avoid interacting as much with people younger than 15 that arent already friends with me
 
  <p align="center">    i not so often, say slurs i can reclaim, like the n-word being an afrolatino person, say flirty and sexual jokes if youre around my age and i see youre comfortable with it
 
