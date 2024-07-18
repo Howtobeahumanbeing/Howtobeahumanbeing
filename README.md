@@ -3,6 +3,8 @@
 
    <p align="center">
   <img src="https://files.catbox.moe/ccmf8y.webp"/><img src="https://files.catbox.moe/ql5l3h.webp"/><img src="https://files.catbox.moe/hove47.webp"/></p>
+
+---
    
    ![](https://komarev.com/ghpvc/?username=Acceptmylove&color=red)
 
