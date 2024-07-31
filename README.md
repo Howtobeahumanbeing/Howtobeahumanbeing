@@ -7,7 +7,7 @@
 " But little does she know that I'm a wolf in sheep's clothing    <p align="center">                                                                                 
 'Cause at the end of the night, it is her I'll be holding "
    
-   ![](https://komarev.com/ghpvc/?username=Acceptmylove&color=yellow)
+   ![](https://komarev.com/ghpvc/?username=Acceptmylove&color=blue)
 
 
  <p align="center">     
