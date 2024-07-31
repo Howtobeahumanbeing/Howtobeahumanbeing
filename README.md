@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://file.garden/Zd4zBrmXyXjgTATs/puruth.png" /></p>
+<img src="https://file.garden/Zd4zBrmXyXjgTATs/picmix.com_11938726%20(1).gif" /></p>
 
 
 ---
