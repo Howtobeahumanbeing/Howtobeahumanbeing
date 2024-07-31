@@ -8,8 +8,8 @@
 
 ---
    <p align="center">    
-❝ But little does she know that I'm a wolf in sheep's clothing    <p align="center">                                                                                 
-'Cause at the end of the night, it is her I'll be holding ❜❜
+❝ We caught a vibe, baby are you coming for the ride?  <p align="center">                                                                                 
+When I look into your eyes, I just wanna hold you all night ❜❜
    
    ![](https://komarev.com/ghpvc/?username=Acceptmylove&color=blue)
 
