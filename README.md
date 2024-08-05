@@ -7,9 +7,7 @@
 
 
 ---
-   <p align="center">    
-❝ We caught a vibe, baby are you coming for the ride?  <p align="center">                                                                                 
-When I look into your eyes, I just wanna hold you all night ❜❜
+
    
    ![](https://komarev.com/ghpvc/?username=Acceptmylove&color=blue)
 
