@@ -1,4 +1,4 @@
- ![](https://komarev.com/ghpvc/?username=Acceptmylove&style=for-the-badge&color=ff69b4&label=Victims+count)
+ ![](https://komarev.com/ghpvc/?username=Acceptmylove&style=for-the-badge&color=ff69b4)
 
 
 ---
