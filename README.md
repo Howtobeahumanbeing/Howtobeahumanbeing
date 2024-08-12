@@ -1,26 +1,23 @@
-<p align="center">
-<img src="https://files.catbox.moe/f3kzid.gif" /></p>
-
----
-<p align="center">
-<img src="https://files.catbox.moe/dxei15.png" /></p>
+ ![](https://komarev.com/ghpvc/?username=Acceptmylove&style=flat-square&color=green&label=Victims+count)
 
 
 ---
-
-   
-   ![](https://komarev.com/ghpvc/?username=Acceptmylove&color=blue)
 
 <p align="center">   
-♡
+𖤐⭒๋࣭ ⭑
+<p align="center">
+<img src="https://file.garden/Zd4zBrmXyXjgTATs/dsjai.png" /></p>
+<p align="right">   
+❝ My muñequita, my Spanish Harlem Mona Lisa, you're my reason for reason ❜❜
 
- <p align="center">     
-   i usually interact with anyone but i will avoid interacting as much with people younger than 15 that arent already friends with me
-
- <p align="center">     not so often, i say slurs i CAN reclaim, like the n-word being an afrolatino person, say flirty and sexual jokes if youre around my age and i see youre comfortable with it
-
-   i always sit with my friends, if you see me sitting by myself, im probably upset but i will likely respond if you talk to me, also you might see me on 18+ with my [best friend](https://1-29-22.carrd.co/) 
-
+---
 
 <p align="center">
-  <img src="https://files.catbox.moe/gtld2x.png" /></p>
+<img src="https://files.catbox.moe/9nbub5.webp" /></p>
+
+ <p align="center">     
+ i usually will avoid interacting as much with people younger than 15 that arent already friends with me
+
+ <p align="center">    i not so often say slurs i CAN reclaim, like the n-word being an afrolatino person, say flirty and sexual jokes if youre around my age and i see youre comfortable with it
+
+
