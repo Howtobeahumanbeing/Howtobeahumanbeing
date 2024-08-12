@@ -8,7 +8,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/8h0hbx.png" /></p>
 <p align="right">   
-❝ I developed some fun habits, put my white blood cells to work ❜❜
+❝ Agnes, just stop and think a minute ❜❜
 
 ---
 
