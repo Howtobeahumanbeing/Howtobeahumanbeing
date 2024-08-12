@@ -8,7 +8,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/8h0hbx.png" /></p>
 <p align="right">   
-❝ My muñequita, my Spanish Harlem Mona Lisa, you're my reason for reason ❜❜
+❝ I developed some fun habits, put my white blood cells to work ❜❜
 
 ---
 
@@ -20,5 +20,5 @@
 
  <p align="center">    i not so often say slurs i CAN reclaim, like the n-word being an afrolatino person, say flirty and sexual jokes if youre around my age and i see youre comfortable with it
   
-[![](https://files.catbox.moe/gssdur.webp)](https://1-29-22.carrd.co/) [![](https://files.catbox.moe/mpwj12.webp)](https://github.com/CIovers) [![](https://files.catbox.moe/3xs13o.webp)](https://velontheclouds.straw.page/) [![](https://files.catbox.moe/20uaks.webp)](https://github.com/nageishi) [![](https://files.catbox.moe/anprw2.webp)](https://github.com/whispyvibez)
+[![](https://files.catbox.moe/0925na.webp)](https://1-29-22.carrd.co/) [![](https://files.catbox.moe/holwz0.webp)](https://github.com/CIovers) [![](https://files.catbox.moe/x2jf0g.webp)](https://velontheclouds.straw.page/) [![](https://files.catbox.moe/6ddz8e.webp)](https://github.com/nageishi) [![](https://files.catbox.moe/tzqb55.webp)](https://github.com/whispyvibez)
 
