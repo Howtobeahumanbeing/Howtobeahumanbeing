@@ -8,7 +8,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/8h0hbx.png" /></p>
 <p align="right">   
-❝ Oh, angel sent from up above, i feel you coursing through my blood ❜❜
+❝ I settle for a ghost i never knew ❜❜
 
 ---
 
