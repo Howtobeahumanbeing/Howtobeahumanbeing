@@ -1,4 +1,4 @@
- ![](https://komarev.com/ghpvc/?username=Acceptmylove&style=for-the-badge&color=ff69b4)
+ ![](https://komarev.com/ghpvc/?username=Acceptmylove&style=for-the-badge&color=green)
 
 <p align="center">   
 𖤐⭒๋࣭ ⭑
@@ -6,14 +6,14 @@
 ---
 
 <p align="center">
-<img src="https://files.catbox.moe/8h0hbx.png" /></p>
+<img src="https://file.garden/Zd4zBrmXyXjgTATs/dsjai.png" /></p>
 <p align="right">   
 ❝ I settle for a ghost i never knew ❜❜
 
 ---
 
 <p align="center">
-<img src="https://files.catbox.moe/0z8dei.gif" /></p>
+<img src="https://file.garden/Zd4zBrmXyXjgTATs/52bb563f.gif" /></p>
 
  <p align="center">     
  i usually will avoid interacting as much with people younger than 15 that arent already friends with me
