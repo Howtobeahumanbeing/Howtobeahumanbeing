@@ -8,7 +8,7 @@
 <p align="center">
 <img src="https://file.garden/Zd4zBrmXyXjgTATs/dsjai.png" /></p>
 <p align="right">   
-❝ I settle for a ghost i never knew ❜❜
+❝ Agnes just stop and think a minute ❜❜
 
 ---
 
