@@ -7,12 +7,14 @@
 
 <p align="center">
 <img src="https://file.garden/Zd4zBrmXyXjgTATs/41_Sem_Titulo_20240731070802.png" /></p>
+
+---
+
 <p align="right">   
 ❝ You dyed your hair blue, oh, so much deja vu
  <p align="right">   
 And now I can feel your love ❜❜
 
----
 
 <p align="center">
 <img src="https://file.garden/Zd4zBrmXyXjgTATs/52bb563f.gif" /></p>
