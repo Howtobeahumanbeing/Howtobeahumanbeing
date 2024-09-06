@@ -6,7 +6,7 @@
 ---
 
 <p align="center">
-<img src="https://file.garden/Zd4zBrmXyXjgTATs/41_Sem_Titulo_20240731070802.png" /></p>
+<img src="https://files.catbox.moe/c67d96.png" /></p>
 
 ---
 
