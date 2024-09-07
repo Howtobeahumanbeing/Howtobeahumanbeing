@@ -1,4 +1,4 @@
- ![](https://komarev.com/ghpvc/?username=Acceptmylove&style=for-the-badge&color=green)
+ ![](https://komarev.com/ghpvc/?username=Acceptmylove&style=for-the-badge&color=green&label=victims)
 
 <p align="center">   
 𖤐⭒๋࣭ ⭑
