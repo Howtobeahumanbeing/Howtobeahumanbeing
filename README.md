@@ -6,7 +6,7 @@
 ---
 
 <p align="center">
-<img src="https://file.garden/Zd4zBrmXyXjgTATs/52_Sem_Titulo_20240911232744.webp" /></p>
+<img src="https://file.garden/Zd4zBrmXyXjgTATs/piketux.png" /></p>
 
 ---
 
