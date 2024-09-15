@@ -14,8 +14,11 @@
 ❝ You dyed your hair blue, oh, so much deja vu
  <p align="right">   
 And now I can feel your love ❜❜
-
-
+  
+<p align="center">
+It/He  ┆  ୨୧  ┆ INFJ 4w5
+ <p align="center">
+  ENG/PT/ES
 <p align="center">
 <img src="https://file.garden/Zd4zBrmXyXjgTATs/52bb563f.gif" /></p>
 
