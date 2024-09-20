@@ -11,9 +11,9 @@
 ---
 
 <p align="right">   
-❝ You dyed your hair blue, oh, so much deja vu
+❝ Come on, don't leave me
  <p align="right">   
-And now I can feel your love ❜❜
+it can't be that easy babe ❜❜
   
 <p align="center">
 It/He  ┆  ୨୧  ┆ INFJ 4w5
