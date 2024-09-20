@@ -18,7 +18,7 @@ it can't be that easy babe ❜❜
 <p align="center">
 It/He  ┆  ୨୧  ┆ INFJ 4w5
  <p align="center">
-  ENG/PT/ES
+  ENG/PT/ES  Afrolatino/Black Latino
 <p align="center">
 <img src="https://file.garden/Zd4zBrmXyXjgTATs/52bb563f.gif" /></p>
 
