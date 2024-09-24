@@ -6,7 +6,7 @@
 ---
 
 <p align="center">
-<img src="https://files.catbox.moe/p2nmzq.png" /></p>
+<img src="https://files.catbox.moe/39p0ci.jpg" /></p>
 
 ---
 
@@ -20,7 +20,7 @@ It/He  ┆  ୨୧  ┆ INFJ 4w5
  <p align="center">
   ENG/PT/ES ─  Black Latino
 <p align="center">
-<img src="https://file.garden/Zd4zBrmXyXjgTATs/52bb563f.gif" /></p>
+<img src="https://files.catbox.moe/rynhga.webp" /></p>
 
  <p align="center"> ive been very burnt out lately so i might not respond very well or at all 
 
