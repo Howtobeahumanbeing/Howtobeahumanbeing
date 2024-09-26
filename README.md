@@ -11,9 +11,9 @@
 ---
 
 <p align="right">   
-❝ Come on, don't leave me
+❝ Closer to me baby, i won't bite
  <p align="right">   
-it can't be that easy babe ❜❜
+you look so tasty but i won't bite ❜❜
   
 <p align="center">
 It/He  ┆  ୨୧  ┆ INFJ 4w5
