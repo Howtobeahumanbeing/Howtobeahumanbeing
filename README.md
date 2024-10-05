@@ -18,7 +18,7 @@ you look so tasty but i won't bite ❜❜
 <p align="center">
 It/He  ┆  ୨୧  ┆ INFJ 4w5
  <p align="center">
-  ENG/PT/ES ─  Black Latino
+  ENG/PT/ES ─  Black Latino 8teen
 <p align="center"> 
 Use it/its on me PLEASEE im an it loud and proud
 <p align="center">
