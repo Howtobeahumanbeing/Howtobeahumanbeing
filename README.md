@@ -4,17 +4,19 @@
 𖤐⭒๋࣭ ⭑
  
 ---
-
+$${\color{lightblue}closer \space to \space me \space baby \space i \space wont \space \color{white} bite}$$
 <p align="center">
 <img src="https://files.catbox.moe/39p0ci.jpg" /></p>
 
+$${\color{lightblue}you \space look \space so \space \color{white} tasty \color{lightblue} \space but  \space i \space wont \space bite}$$
+
 ---
-<font color="green"> Closer to me baby  i wont bite </font>
 
 
-<p align="right">   
-you look so tasty but i won't bite ❜❜
-  
+
+
+<p align="center">
+──
 <p align="center">
 It/He  ┆  ୨୧  ┆ INFJ 4w5
  <p align="center">
