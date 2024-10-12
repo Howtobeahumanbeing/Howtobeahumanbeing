@@ -4,11 +4,11 @@
 𖤐⭒๋࣭ ⭑
  
 ---
-$${\color{lightgreen}closer \space to \space me \space baby \space i \space wont \space \color{white} bite}$$
+$${\color{lightgreen}\space had \space to \space give \space in,\space couldn't \space give \space up }$$
 <p align="center">
 <img src="https://file.garden/Zd4zBrmXyXjgTATs/juhyghuj.webp" /></p>
 
-$${\color{lightgreen}you \space look \space so \space \color{white} tasty \color{lightgreen} \space but  \space i \space wont \space bite}$$
+$${\color{lightgreen}i \space just \space want \space you, \space but \space \color{white} i  \space dont \space do \space drugs}$$
 
 ---
 
