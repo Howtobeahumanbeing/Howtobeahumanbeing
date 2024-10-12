@@ -22,7 +22,7 @@ It/He  ┆  ୨୧  ┆ INFJ 4w5
  <p align="center">
   ENG/PT/ES ─  Black Latino 
 <p align="center"> 
-Use it/its on me PLEASEE im an it loud and proud
+Use it/its on me PLEASEE im an it loud and proud, all pronouns are actually okay i just have some preferences
 <p align="center">
 <img src="https://files.catbox.moe/rynhga.webp" /></p>
 
