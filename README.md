@@ -4,11 +4,11 @@
 𖤐⭒๋࣭ ⭑
  
 ---
-$${\color{lightblue}closer \space to \space me \space baby \space i \space wont \space \color{white} bite}$$
+$${\color{lightgreen}closer \space to \space me \space baby \space i \space wont \space \color{white} bite}$$
 <p align="center">
-<img src="https://files.catbox.moe/39p0ci.jpg" /></p>
+<img src="https://file.garden/Zd4zBrmXyXjgTATs/juhyghuj.webp" /></p>
 
-$${\color{lightblue}you \space look \space so \space \color{white} tasty \color{lightblue} \space but  \space i \space wont \space bite}$$
+$${\color{lightgreen}you \space look \space so \space \color{white} tasty \color{lightgreen} \space but  \space i \space wont \space bite}$$
 
 ---
 
