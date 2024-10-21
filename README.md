@@ -18,6 +18,10 @@ $${\color{lightgreen}i \space just \space want \space you, \space but \space \co
 <p align="center">
 ──
 <p align="center">
+<img src="https://file.garden/Zd4zBrmXyXjgTATs/Tumblr_l_223500493412760.gif" /></p>
+
+ [©](https://www.tumblr.com/roseatedesire/763341881186926592/18trip-wardens-stamps-likerb-credit-if?source=share)
+<p align="center">
 It/He  ┆  ୨୧  ┆ INFJ 4w5
  <p align="center">
   ENG/PT/ES ─  Black Latino 
