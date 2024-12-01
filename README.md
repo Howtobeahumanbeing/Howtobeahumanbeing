@@ -12,6 +12,7 @@ $${\color{lightgreen}i \space just \space want \space you, \space but \space \co
 
 ---
 
+[![](https://files.catbox.moe/r1jw29.png)](https://astral.atabook.org/) [![](https://files.catbox.moe/k60g2b.png)](https://kuromesh.straw.page/) [![](https://files.catbox.moe/nlwz6k.png)](https://sntry.cc/shadowdog)
 
 
 
