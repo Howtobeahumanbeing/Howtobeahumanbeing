@@ -17,7 +17,8 @@ $${\color{lightgreen}i \space just \space want \space you, \space but \space \co
 
 
 <p align="center">
-──
+|
+   ✿
 <p align="center">
 <img src="https://file.garden/Zd4zBrmXyXjgTATs/Tumblr_l_223500493412760.gif" /></p>
 
@@ -39,9 +40,7 @@ Use it/its on me PLEASEE im an it loud and proud, all pronouns are actually okay
  <p align="center">    i not so often say slurs i CAN reclaim, like the n-word being an afrolatino person, say flirty and sexual jokes if youre around my age and i see youre comfortable with it
 
  <p align="center">    
-  ✿
+
   
-<p align="center">
-<img src="https://file.garden/Zd4zBrmXyXjgTATs/jjjj.png" /></p>
-  
+
 
