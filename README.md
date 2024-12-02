@@ -4,11 +4,11 @@
 𖤐⭒๋࣭ ⭑
  
 ---
-$${\color{lightgreen}\space had \space to \space give \space in,\space couldn't \space give \space up }$$
+$${\color{pink}\space had \space to \space give \space in,\space couldn't \space give \space up }$$
 <p align="center">
 <img src="https://files.catbox.moe/v0390h.png" /></p>
 
-$${\color{lightgreen}i \space just \space want \space you, \space but \space \color{white} i  \space dont \space do \space drugs}$$
+$${\color{pink}i \space just \space want \space you, \space but \space \color{white} i  \space dont \space do \space drugs}$$
 
 ---
 
@@ -19,16 +19,13 @@ $${\color{lightgreen}i \space just \space want \space you, \space but \space \co
 <p align="center">
 |
    ✿
-<p align="center">
-<img src="https://file.garden/Zd4zBrmXyXjgTATs/Tumblr_l_223500493412760.gif" /></p>
 
- [©](https://www.tumblr.com/roseatedesire/763341881186926592/18trip-wardens-stamps-likerb-credit-if?source=share)
+
 <p align="center">
-It/He  ┆  ୨୧  ┆ INFJ 4w5
+He/They ┆  ୨୧  ┆ INFJ 4w5
  <p align="center">
   ENG/PT/ES ─  Black Latino 
-<p align="center"> 
-Use it/its on me PLEASEE im an it loud and proud, all pronouns are actually okay i just have some preferences
+
 <p align="center">
 <img src="https://files.catbox.moe/rynhga.webp" /></p>
 
