@@ -6,7 +6,7 @@
 ---
 $${\color{pink}\space had \space to \space give \space in,\space couldn't \space give \space up }$$
 <p align="center">
-<img src="https://files.catbox.moe/v0390h.png" /></p>
+<img src="https://files.catbox.moe/0017vl.png" /></p>
 
 $${\color{pink}i \space just \space want \space you, \space but \space \color{white} i  \space dont \space do \space drugs}$$
 
@@ -22,7 +22,7 @@ $${\color{pink}i \space just \space want \space you, \space but \space \color{wh
 
 
 <p align="center">
-He/They ┆  ୨୧  ┆ INFJ 4w5
+He/It ┆  ୨୧  ┆ INFJ 4w5
  <p align="center">
   ENG/PT/ES ─  Black Latino 
 
