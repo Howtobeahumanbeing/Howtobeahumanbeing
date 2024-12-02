@@ -28,8 +28,6 @@ $${\color{pink}i \space just \space want \space you, \space but \space \color{wh
 <p align="center">
 <img src="https://files.catbox.moe/rynhga.webp" /></p>
 
- <p align="center"> ive been very burnt out lately so i might not respond very well or at all 
-
  <p align="center">     
  i will interact with anyone but i usually wont do it as much with people younger than 15 that arent already friends with me
 
