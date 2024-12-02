@@ -21,9 +21,9 @@ $${\color{pink}i \space just \space want \space you, \space but \space \color{wh
 
 
 <p align="center">
-He/It ┆  ୨୧  ┆ INFJ 4w5
+ Black Latino  ┆  ୨୧  ┆ INFJ 4w5
  <p align="center">
-  ENG/PT/ES ─  Black Latino 
+  ENG/PT/ES 
 
 <p align="center">
 <img src="https://files.catbox.moe/rynhga.webp" /></p>
