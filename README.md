@@ -5,8 +5,7 @@
  
 ---
 $${\color{pink}\space had \space to \space give \space in,\space couldn't \space give \space up }$$
-<p align="center">
-<img src="https://files.catbox.moe/0017vl.png" /></p>
+
 
 $${\color{pink}i \space just \space want \space you, \space but \space \color{white} i  \space dont \space do \space drugs}$$
 
