@@ -6,7 +6,7 @@
 ---
 $${\color{lightgreen}\space had \space to \space give \space in,\space couldn't \space give \space up }$$
 <p align="center">
-<img src="https://file.garden/Zd4zBrmXyXjgTATs/juhyghuj.webp" /></p>
+<img src="https://files.catbox.moe/v0390h.png" /></p>
 
 $${\color{lightgreen}i \space just \space want \space you, \space but \space \color{white} i  \space dont \space do \space drugs}$$
 
