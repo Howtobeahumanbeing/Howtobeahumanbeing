@@ -1,9 +1,11 @@
 
 
 <p align="center">   
-𖤐⭒๋࣭ ⭑
+<img src="https://files.catbox.moe/74cu13.gif" /></p>
  
----
+<p align="center">
+<img src="https://files.catbox.moe/2rmcq1.png" /></p>
+
 $${\color{pink}\space had \space to \space give \space in,\space couldn't \space give \space up }$$
 <p align="center">
 <img src="https://files.catbox.moe/dpn1m7.png" /></p>
