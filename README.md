@@ -1,9 +1,9 @@
 ---
 <p align="center">
-  <img width="" height="" src="https://files.catbox.moe/i32do2.png">
+  <img width="" height="" src="https://files.catbox.moe/6k3op6.jpg">
 </p>
 
-$${\color{lightblue}kiss \space it, \space kiss \space it, \space kiss \space it \space better, \space baby}$$
+$${\color{lightblue}Why \space can't \space we \space laugh \space now \space like \space we \space did \space then?}$$
 
 ---
 
@@ -16,10 +16,6 @@ $${\color{lightblue}kiss \space it, \space kiss \space it, \space kiss \space it
    ✿
 
 
-<p align="center">
-<img src="https://files.catbox.moe/rynhga.webp" /></p>
-<p align="center">
-<img src="https://files.catbox.moe/534jl3.png" /></p>
 
 
 
