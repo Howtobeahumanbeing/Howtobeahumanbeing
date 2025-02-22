@@ -8,7 +8,7 @@ $${\color{lightblue}Why \space can't \space we \space laugh \space now \space li
 ---
 
 
-  [![](https://files.catbox.moe/7vnhjy.png)](https://astral.atabook.org/) [![](https://files.catbox.moe/2kbhsq.png)](https://kuromesh.straw.page/) [![](https://files.catbox.moe/yf46q0.png)](https://sntry.cc/shadowdog)
+  [![](https://files.catbox.moe/7vnhjy.png)](https://astral.atabook.org/) [![](https://files.catbox.moe/2kbhsq.png)](https://kuromesh.straw.page/) [![](https://files.catbox.moe/yf46q0.png)](https://sntry.cc/tomfoolery)
 
 
 <p align="center">
