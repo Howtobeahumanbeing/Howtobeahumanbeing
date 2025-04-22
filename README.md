@@ -15,9 +15,7 @@ $${\color{#ae91bc}Just \space hoping \space that \space it'll \space rub \space 
 
 
 <p align="center">
-|
-   ✿
-
+  <img width="" height="" src="https://files.catbox.moe/cvq9j1.gif">
 
 
 
