@@ -1,9 +1,10 @@
 ---
-<p align="center">
-  <img width="" height="" src="https://files.catbox.moe/6k3op6.jpg">
+
 </p>
 
-$${\color{lightblue}Why \space can't \space we \space laugh \space now \space like \space we \space did \space then?}$$
+$${\color{#ae91bc}...I \space pray \space that \space i \space can \space learn \space to \space be \space be \space funny, \space i'm \space watching \space every \space stand-up \space comedy}$$
+
+$${\color{#ae91bc}Just \space hoping \space that \space it'll \space rub \space off \space on \space me, \space so \space you'll \space smile \space at \space everything \space i \space say... }$$
 
 ---
 
