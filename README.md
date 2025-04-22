@@ -6,6 +6,8 @@ $${\color{#ae91bc}...I \space pray \space that \space i \space can \space learn 
 
 $${\color{#ae91bc}Just \space hoping \space that \space it'll \space rub \space off \space on \space me, \space so \space you'll \space smile \space at \space everything \space i \space say... }$$
 
+
+
 ---
 
 
