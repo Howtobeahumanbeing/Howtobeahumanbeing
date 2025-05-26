@@ -2,9 +2,11 @@
 
 </p>
 
-$${\color{#ae91bc}...I \space pray \space that \space i \space can \space learn \space to \space be \space be \space funny, \space i'm \space watching \space every \space stand-up \space comedy}$$
 
-$${\color{#ae91bc}Just \space hoping \space that \space it'll \space rub \space off \space on \space me, \space so \space you'll \space smile \space at \space everything \space i \space say... }$$
+<p align="center">
+  <img width="400" height="" src="https://file.garden/Zd4zBrmXyXjgTATs/12%20Sem%20T%C3%ADtulo_20250526170646.png">
+
+$${\color{#ae91bc}Now \space you \space bird \space watchers \space wonder \space why \space they \space call \space me \space bitch }$$
 
 <p align="center">
  𖤐  
