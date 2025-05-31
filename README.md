@@ -6,7 +6,8 @@
 <p align="center">
   <img width="400" height="" src="https://file.garden/Zd4zBrmXyXjgTATs/12%20Sem%20T%C3%ADtulo_20250526170646.png">
 
-$${\color{#ae91bc}But \space she \space don't \space know \space that \space i \space went \space from \space cunt \space to \space dick \space early \space this \space month }$$
+<p align="center">
+But she dont know that i went from cunt to dick early this month
 
 <p align="center">
  𖤐  
