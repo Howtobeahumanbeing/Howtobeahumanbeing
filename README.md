@@ -15,7 +15,7 @@ But she dont know that i went from cunt to dick early this month
 ---
 
 
-  [![](https://files.catbox.moe/7vnhjy.png)](https://astral.atabook.org/) [![](https://files.catbox.moe/2kbhsq.png)](https://kuromesh.straw.page/) [![](https://files.catbox.moe/yf46q0.png)](https://sntry.cc/tomfoolery)
+  [![](https://files.catbox.moe/7vnhjy.png)](https://astral.atabook.org/) [![](https://files.catbox.moe/2kbhsq.png)](https://ilikeasch.straw.page/) [![](https://files.catbox.moe/yf46q0.png)](https://sntry.cc/tomfoolery)
 
 
 <p align="center">
