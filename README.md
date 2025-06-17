@@ -7,7 +7,9 @@
   <img width="400" height="" src="https://file.garden/Zd4zBrmXyXjgTATs/12%20Sem%20T%C3%ADtulo_20250526170646.png">
 
 <p align="center">
-But she dont know that i went from cunt to dick early this month
+Come come kitty kitty, you're so pretty pretty
+  <p align="center">
+Don't go kitty kitty, stay with me
 
 <p align="center">
  𖤐  
