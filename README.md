@@ -17,7 +17,7 @@ Don't go kitty kitty, stay with me
 ---
 
 
-  [![](https://files.catbox.moe/7vnhjy.png)](https://astral.atabook.org/) [![](https://files.catbox.moe/2kbhsq.png)](https://factserror.straw.page/) [![](https://files.catbox.moe/yf46q0.png)](https://sntry.cc/tomfoolery)
+  [![](https://files.catbox.moe/7vnhjy.png)](https://astral.atabook.org/) [![](https://files.catbox.moe/2kbhsq.png)](https://iranami.straw.page/) [![](https://files.catbox.moe/yf46q0.png)](https://sntry.cc/tomfoolery)
 
 
 <p align="center">
