@@ -4,12 +4,12 @@
 
 
 <p align="center">
-  <img width="400" height="" src="https://file.garden/Zd4zBrmXyXjgTATs/12%20Sem%20T%C3%ADtulo_20250526170646.png">
+  <img width="400" height="" src="https://file.garden/Zd4zBrmXyXjgTATs/HHfVcZqa0AENrro.jpeg">
+  
 
 <p align="center">
-Come come kitty kitty, you're so pretty pretty
-  <p align="center">
-Don't go kitty kitty, stay with me
+you can sit by me if im with my friends just know i might be talking to them in party chat so i might not respond a lot😓
+
 
 <p align="center">
  𖤐  
@@ -20,8 +20,6 @@ Don't go kitty kitty, stay with me
   [![](https://files.catbox.moe/7vnhjy.png)](https://astral.atabook.org/) [![](https://files.catbox.moe/2kbhsq.png)](https://iranami.straw.page/) [![](https://files.catbox.moe/yf46q0.png)](https://sntry.cc/tomfoolery)
 
 
-<p align="center">
-  <img width="" height="" src="https://files.catbox.moe/cvq9j1.gif">
 
 
 
