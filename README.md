@@ -5,7 +5,7 @@
 
 <p align="center">
   <img width="400" height="" src="https://file.garden/Zd4zBrmXyXjgTATs/HHfVcZqa0AENrro.jpeg">
-  not my art btw
+  @siz_eden
   
 <p align="center">
 im pretty social and friendly id say, but id rather my friends be 17 or above sorryy, but u can come up to me just dont expect me to reach u out alot if ure under that age
