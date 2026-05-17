@@ -16,6 +16,9 @@ you can sit by me if im with my friends just know i might be talking to them in 
 if i randomly disappear while were hanging out or talking and dont come back all day my body probably reached its limit and i either fell asleep or am just laying in pain from hEDS #chronicpain
 
 <p align="center">
+  <img width="400" height="" src="https://file.garden/Zd4zBrmXyXjgTATs/HHfVcZqa0AENrro.jpeg">
+
+<p align="center">
  ♥︎  
 
 ---
