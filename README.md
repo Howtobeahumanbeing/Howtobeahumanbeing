@@ -19,7 +19,7 @@ if i randomly disappear while were hanging out or talking and dont come back all
   <img width="400" height="" src="https://file.garden/Zd4zBrmXyXjgTATs/HHfVcZqa0AENrro.jpeg">
 
 <p align="center">
- ♥︎  
+ ♥︎🐍💻  
 
 ---
 
